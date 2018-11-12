@@ -1,2 +1,0 @@
-# mclaughlin.today
-mclaughlin.today
